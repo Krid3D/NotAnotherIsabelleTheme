@@ -1,1 +1,0 @@
-# NotAnotherIsabelleTheme How it Works.
